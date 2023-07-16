@@ -1,4 +1,4 @@
-**Brian Carlton** was a Commander for Starfleet, and was the initial placement of First Officer aboard the USS [[Curiosity]]. However, around six months prior to this placement, he was replaced by a Cardassian spy, [[Dul Nalok]].
+**Brian Carlton** was a Commander for Starfleet, and was the initial placement of First Officer aboard the USS [[Curiosity]]. However, around six months prior to this placement, he was replaced by a Cardassian spy, [[Gul Nolak]].
 
 His current whereabouts are unknown.
 
