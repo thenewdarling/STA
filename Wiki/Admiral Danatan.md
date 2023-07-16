@@ -1,0 +1,1 @@
+**Admiral Danatan** is a Bolian admiral stationed aboard *Deep Space Nine* following the Dominion War.
