@@ -16,7 +16,7 @@ Elandra is the fourth host of the Val symbiont.
 
 #### Lieutenant Commander Jarzeg Val
 
-A talented but overly-stuffy pilot that was the Dad Friend of the bridge crew on his crew. He was a kind of burly rotund guy who didn't really talk about his feelings. He got on with [[Unnamed Betazoid Captain]] when they were on his previous command together.
+A talented but overly-stuffy pilot that was the Dad Friend of the bridge crew on his crew. He was a kind of burly rotund guy who didn't really talk about his feelings. He got on with [[Bakral]] when they were on his previous command together.
 
 He died of a heart-attack, it was implied due to stress. Elandra also says he didn't seek help for his health conditions until they were too late, ascribing it to his gender.
 
