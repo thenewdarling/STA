@@ -1,3 +1,5 @@
+*"If the crew are inspired, I have less work." -- Captain Bakral*
+
 **Captain Evoixi Bakral** is the Captain of the USS [[Discovery]]. He is Betazoid.
 
 This is his second command following the destruction of his first ship, the USS Laveau in the Dominion War. Prior to his Captaincy he was a ship counsellor. His experiences in the Dominion War have traumatised him somewhat.
